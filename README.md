@@ -1,0 +1,2 @@
+# Unlock-Your-Financial-Potential-How-to-Learn-Stock-Market-in-India
+The stock market has become one of the most popular avenues for wealth creation in India. With increasing awareness, technology-driven platforms, and accessible information, more people than ever are exploring how to invest, trade, and grow their money in the markets. However, diving into the stock market without proper knowledge can be risky.
